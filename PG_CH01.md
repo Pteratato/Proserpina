@@ -1,6 +1,6 @@
 ![!Oasis 2](https://cdn.discordapp.com/attachments/638778932380041236/1123984824563146922/Oasis_CH41.png)
 
-## Chapter 1: 
+## Chapter 1: The Songstress
 
 The main dressing room of the lavish *Teatro di Fiore* was cluttered with flowers both fresh and wilting, filling the air with sweet perfume. Gifts and clothes littered the furniture and surfaces around the room, sparing a single couch fated to be buried under layers and layers of fabrics, with swatches of various sizes pinned here and there, seeking out a mythical combination stunning enough to suit the *Songstress of Octavia* herself, Katarina di Norccia.
 
