@@ -1,38 +1,40 @@
-![!Oasis 2](https://cdn.discordapp.com/attachments/638778932380041236/1123984861712097311/Oasis_CH42.png)
+![!PG 2](https://cdn.discordapp.com/attachments/638778932380041236/1123984861712097311/Oasis_CH42.png)
 
 ## Chapter 2: *Polycephaly*
 
-Again staring into the ornate mirror, Katarina examined her face. She had removed the stage makeup from rehearsal, replacing it with something lighter. She’d been quiet since they’d reached her room, trying to figure out how to side-step her cousin’s request to go outside the wall. She eyed the envelope on her vanity before reaching for a comb to hold up the top portion of her heavy locks. 
+Once again staring into an ornate mirror, Katarina examined her face. She had removed the stage makeup from rehearsal, replacing it with something lighter. She’d been quiet since they’d reached her room, trying to figure out how to side-step her cousin’s request to go outside the wall... 
+
+She eyed the envelope on her vanity a moment, before picking up a comb to hold up the top portion of her heavy locks. 
 
 “So… I got an interesting letter in my fanmail the other day,” Kat mused as she admired the way the rest of her curls fell down her bare back. “There’s this concert venue that hops around the city. And apparently the only way to find it is with a ticket, which one of my *adoring* fans has so generously provided.”
 
-She handed the envelope to her cousin. Inside, Fran found the letter and a small square with a simple emblem on it. Kat looked at her cousin, excitement bubbling in her eyes. 
+She handed the envelope to her cousin. Inside, Fran found the letter and a small square with a simple caterpillar emblem on it. Kat looked at her cousin, excitement bubbling in her eyes. 
 
 “You take the little slip, let it dissolve on your tongue, and it leads you there,” she said, her eyes wide, a mischievous grin overtaking her lips. 
 
 Without waiting for her cousin to respond, Kat fished out the tiny slip and, with a wide smile, placed it on her tongue. She didn’t know how long it would take to hit her, but that only added to the anticipation.
 
+“*Kat--!*” Fran gasped as she watched her cousin drop the slip on her tongue. “You have no idea what that could be laced with!”
+
 Katarina felt the excitement rush through her veins. There was a small pang of guilt from railroading her cousin into going where she wanted, but it was willed away by the rationalization that Fran would still have a good time. The songstress just didn’t feel like wasting one of her last free nights on a wild caravan chase. And it wasn’t like Amal wouldn’t ever show – Fran would get to moon over him soon enough. 
 
-And who knew, maybe Fran’s mother would let her off easy for missing the family dinner. It *was* festival week. Fran had already resolved to miss it anyway, so it wasn’t all on Kat. And it was just one dinner, how important could it be?
+And who knew, maybe Fran’s mother would let her off easy for missing the family dinner, considering it was almost festival week. Fran had already resolved to miss it anyway, so it wasn’t all on Kat. How important could one dinner be?
 
-“Maybe we shouldn’t--!” Fran gasped as she watched her cousin drop the slip on her tongue. “Kat! You have no idea what that could be laced with!”
+“Oh, don’t be a buzzkill. Besides, my mail is checked for anything lethal. This got through the tests because my fans are clever and disguised it as a simple little stamp,” Kat responded confidently. “Now finish getting dressed and enjoy the ride.”
 
-“Oh, don’t be a buzzkill. Besides, my mail is checked for anything lethal. This got through the tests because my fans are clever and disguised it as a simple little stamp.” Kat responded confidently. “Now finish getting dressed and enjoy the ride.”
+Kat felt the effects of the drug taking hold while her cousin dressed for the night out. The room became an incandescent version of itself, the colors rich but distorted, and the lights became shining starbursts. Hands up, Kat moved her fingers in front of her eyes, watching the shadowy digits dance through the light. 
 
-Kat felt the effects of the drug taking hold while her cousin dressed for the night out. The room became an incandescent version of itself. The colors were rich but distorted, the lights became shining starbursts. Hands up, Kat moved her fingers in front of her eyes, watching the shadowy digits dance through the light. 
+“Who knew-” she whispered with a giggle, “my fingers are so small and dark!” 
 
-“Who knew-” she whispered with a giggle, “My fingers are so small and dark!” 
-
-Francesca rolled her eyes, grabbing her cousin by the hand, “We should leave before someone tries to talk to you. If Auntie stops us, we’ll never make it out.”
+Francesca rolled her eyes, grabbing her cousin by the hand. “We should leave before someone talks to you. If Auntie stops us, we’ll never make it out.”
 
 “Oh, Fran, I love you so much. You’re so beautiful,” the singer said with an airy voice, running her fingers down the sides of her cousin’s face. “Your mind is so beautiful. It’s almost like I can see your ideas spilling out.” 
 
-Nervously, Fran opened one of the doors to Kat’s room, scanning the hallway for any wayward di Norccias. She stepped forward to peek over the railing to the floor below, but there was no one in the entrance hall either. They just might make it out unnoticed. 
+Nervously, Fran opened one of the doors to Kat’s room, scanning the hallway for any wayward di Norccias. She stepped forward to peek over the railing at the floor below, but the entrance hall was empty. They just might make it out unnoticed. 
 
 “Alright, let’s go,” she whispered, as if that would save them from unwanted attention. 
 
-Kat followed her out of the room, dragging her fingers lightly against the walls. She could almost hear the intricate designs of the wall patterns. It was like she was seeing her childhood home for the first time. She never expected that tiny little stamp would open her mind up so much. She was absorbing everything, taking in the sounds everything made. She’d never been so aware that the carpet held a quiet symphony. That had to be the reason MaMa had spent so much on it! 
+Kat followed her out of the room, dragging her fingers lightly against the walls. She could almost *hear* the intricate designs of the wall patterns. It was like she was seeing her childhood home for the first time. She never expected that tiny little stamp would open her mind up so much, allowing her to take in the sounds everything made. She’d never been so aware that the carpet held a quiet symphony. That had to be the reason MaMa had spent so much on it! 
 
 There was a small fear in Fran that her cousin may not come down. It was still early but she’d never seen Kat react to any drug this strongly before – and honestly, it was going to get them caught if she couldn’t rein it in! Kat had been babbling about music since they walked out of the room, maybe there was a way to play into that?
 
@@ -44,7 +46,7 @@ Quietly, Fran opened the doors to the di Norccia manor, glancing around to make 
 
 “MaMa!” Kat cried out behind her, with more delight than Fran had ever heard in her life.
 
-Fran turned in horror to see Contessa Carlotta di Norccia, with her daughter hanging from her neck. The di Norccia matriarch had a severe face, with sharp features. She looked much like her daughter, her age only betrayed by the faint lines around her eyes and corners of her mouth.
+Fran turned in horror to see Countessa Carlotta di Norccia, with her daughter hanging from her neck. The di Norccia matriarch had a severe face, with sharp features. She looked much like her daughter, her age only betrayed by the faint lines around her eyes and corners of her mouth.
 
 The countessa was clearly just coming from court. Her gown was her usual mourning black, few adornments but with all the elegance of her station. Her own chocolate waves were pulled from her face in a tight bun, centered at the back of her head. 
 
@@ -52,8 +54,7 @@ The countessa was clearly just coming from court. Her gown was her usual mournin
 
 Fran wracked her brain quickly for a lie, “Oh, we’re just heading to *Casa de Brichese*. Mama has a dinner planned tonight and Kat said she’d help me get ready. I'm great at dressing my cousin but I’m all criss-crossed when it comes to myself!”
 
-The austere matriarch seemed somewhat satisfied with her niece’s explanation for their exit.
-“And I assume my daughter must have over-indulged in some post-rehearsal relaxation?” she asked, arching an eyebrow at her niece. Kat had not let go of her mother yet – she was enjoying the sound of her mother’s voice singing to her, weaving with the fabrics of the elder di Norccia’s dress. 
+The austere matriarch seemed somewhat satisfied with her niece’s explanation for their exit. “And I assume my daughter must have over-indulged in some post-rehearsal relaxation?” she asked, arching an eyebrow at her niece. Kat had not let go of her mother yet – she was enjoying the sound of her mother’s voice singing to her, weaving with the fabrics of the elder di Norccia’s dress. 
 
 “Ah, yes, that’s just it. I told her to forgo that last glass of wine but you know our Kat,” Fran said with a weak smile. “I thought maybe the walk would sober her up some.”
 
@@ -63,15 +64,11 @@ Fran nodded politely and held on to Kat, watching the matriarch as she closed th
 
 “You are insane,” she hissed to Katarina, guiding the songstress briskly down the tree-lined lane. “Absolutely insane, do you know that?”
 
-
-
-
-
-
+---
 
 “Fraaaan,” Kat sang playfully, “It’s still working!”
 
-Half an hour later found Kat dancing down the street, arms above her head as she twirled around. Kat could feel herself start to level out, but the high was absolutely still there. She could still hear the songs of the buildings, down to their bricks. The melodies of the streetlamps and bursts of color that danced around her, but she was slightly more aware of herself. 
+Half an hour later Kat was dancing down the street, arms above her head as she twirled around. Kat could feel herself start to level out, but the high was absolutely still there. She could still hear the songs of the buildings, down to their bricks, and the melodies of the streetlamps and bursts of color that swirled around her, but she was slightly more aware of herself. 
 
 “Woooow,” Kat said as she looked at her hands against the street lamp, “I never noticed how purple my skin is under the streetlights.”
 
@@ -95,17 +92,17 @@ Francesca shivered at the sight of it, her apprehension starting to twinge with 
 
 Light came from the cellar, and the sound of voices far-off, and music. Exultation spread over Kat’s expression and she began the descent down the stairs.
 
-“What the hell is going on?” Fran whispered behind her cousin, following each footstep carefully. She didn’t quite share Kat’s need for adventure, but the curiosity of this escapade finally had her hooked, and even her good sense couldn’t force her to abandon the adventure now. “What if this is some kind of drug den? What kind of fan invites the Songstress of Octavia to a dingy place like this, anyway?”
+“What in the world is going on?” Fran whispered behind her cousin, following each footstep carefully. She didn’t quite share Kat’s need for adventure, but the curiosity of this escapade finally had her hooked, and even her good sense couldn’t force her to abandon the adventure now. “What if this is some kind of drug den? What kind of fan invites the Songstress of Octavia to a dingy place like this, anyway?”
 
 “Fran, hush.”
 
-The descent was long and steep, and the air chilled as they traveled further underground, but the muffled sounds of a large gathering of people was comforting. 
+The descent was long and steep, and the air chilled as they traveled further underground, but the muffled sounds of a large gathering of people were comforting. 
 
 The two ladies pushed open a door at the base of the stairs and Katarina gasped at the scene unfolding before her.
 
-The room was a massive, underground storage facility stacked with crates and packed with people, all crowded in this dimly-lit warehouse. Electric lights were placed periodically around the room and hung on the supporting pillars, but did little to illuminate the details of the crowd., The walls were padded as much as possible with heavy drapery and mismatched layers of cloth to help muffle the noise, and they were spray-painted in the same luminescent colors as signs above ground, prominently featuring the character of a huge green caterpillar chasing the moon.
+The room was a massive, underground storage facility stacked with crates and packed with people, all crowded in this dimly-lit warehouse. Electric lights were placed periodically around the room and hung on the supporting pillars, but did little to illuminate the details of the crowd. The walls were padded as much as possible with heavy drapery and mismatched layers of cloth to help muffle the noise, and they were spray-painted in the same luminescent colors as signs above ground, prominently featuring the character of a huge green caterpillar chasing the moon.
 
-The crowd was thick and rowdy, and more diverse than the ladies had ever seen in a single location. Humans mingled with beastmen of all types, not just the satyrs common beyond the outer wall, but caniforms and simians more rare to Octavia as well. More confusing were the headpieces; black masks and leather helmets covered the upper faces of many and frequently sported false horns, ears, or other protrusions. Humans wore animal masks, animals wore human masks, some wore none, and it all undulated together in a confusing array of morphing features.
+The crowd was thick and rowdy, and more diverse than the ladies had ever seen in a single location. Humans mingled with beastmen of all types, not just the satyrs common beyond the Outer Wall, but caniforms and simians more rare to Octavia as well. More confusing were the headpieces; black masks and leather helmets covered the upper faces of many and frequently sported false horns, ears, or other protrusions. Humans wore animal masks, animals wore human masks, some wore none, and it all undulated together in a confusing array of morphing features.
 
 “Ticket?” A booming voice demanded, lifting a muscled arm to block Katarina’s entry. Overwhelmed and uncomprehending, Kat tore wide eyes from the scene to look at the burly, wolf-masked man, but the shadows of the headpiece kept changing in her eyes and she couldn’t quite focus on it. There was an awkward moment when nobody moved, and then it was Fran who jumped in.
 
@@ -125,7 +122,7 @@ Only music, movement, body heat.
 
 The Wall of Masks was fitted with hooks where headpieces of black and brown hung in a disorganized manner. The craftsmanship of these disguises ran the gamut from beautifully embossed leather to scraps of old shoes barely held together by rusted rivets, but they all covered the upper face and followed the theme of beasts and men. Katarina gingerly selected a feathered bird mask from the wall, her fingers brushing the pale leather, but movement from the stage caught her attention.
 
-The stage at the head of the warehouse was perhaps the most shrouded part of the room, lit from behind by dimmed electric lanterns so that the faces of the stagehands moving across the platform were cast in shadow. They set up the instruments and checked the speakers, running cables back and forth, and tested the microphone for volume and clarity. Despite poor visibility, it was clear to everyone when the stagehands were replaced by the band members; the trio moved quietly, but each of their back-lit silhouettes sported a set of tall horns – straight, curved, and twisting.
+The stage at the head of the warehouse was the most shrouded part of the room, lit from behind by dimmed electric lanterns so that the faces of the stagehands moving across the platform were cast in shadow. They set up the instruments and checked the speakers, running cables back and forth, and tested the microphone for volume and clarity. Despite poor visibility, it was clear to everyone when the stagehands were replaced by the band members; the quartet moved quietly, but each of their back-lit silhouettes sported a set of tall horns – straight, curved, and twisting.
 
 “Welcome,” a deep voice of gravel spoke into the microphone, “to the *Roaming Caterpillar*.”
 
@@ -133,13 +130,13 @@ Several among the crowd whooped and cheered, so the leader paused. He seemed to 
 
 “To any newcomers here, I am Oryx, your tour guide for the evening,” he continued, his words low and slow, leaving ample room for the crowd to shout back.
 
-“We only have one rule here at the Roaming Caterpillar; anyone who steps over that threshold into this room is a brother or a sister. We do not know race. We do not know status. We don’t give a fuck if you’re therian or human, old or young, Octavian or outlander. Forgot all that bullshit. Forget your goddamn name. You are not you, when you’re inside our cocoon. The Roaming Caterpillar is not a place, it is all of us, a creature with many legs, a creature that can change in the night.”
+“We only have one rule here at the Roaming Caterpillar; anyone who steps over that threshold into this room is a brother or a sister. We do not know race. We do not know status. We don’t give a fuck if you’re therian or human, old or young, Octavian or outlander. Forget all that bullshit. Forget your goddamn name. The Roaming Caterpillar is not a place, it is all of us, a creature with many legs, a creature that can change in the night.”
 
 Cheers rippled through the crowd, and satyrs with cloven hooves stamped against the packed ground until it vibrated.
 
-Katarina was immediately pulled in by the one called Oryx. He had a certain charm… and *god that voice*. He could be reading a cookbook for all she cared; she was mesmerized.
+Katarina was immediately pulled in by the one called Oryx. He had a certain charm… and *god, that voice*. He could be reading a cookbook for all she cared; she was mesmerized.
 
-Oryx pulled back and gestured to his right, where a gray-haired satyr with real horns, this set light and twisting, held a sitar. 
+Oryx pulled back and gestured to his right, where a gray-haired satyr with real horns, pale and twisting, held a sitar. 
 
 “Addax and I are bringing you something a little different this evening, something to introduce us to the newcomers. We are *Polycephaly* and this is our new song, *For Whom Death Stalks*.”
 
@@ -151,18 +148,18 @@ The sitar started first, weaving a slow, forlorn melody, gathering speed like a 
 *Kisses for the babies, raging fever,*
 *Kisses for the children, peeling skin,*
 *Kisses for the parents, sucking despair,*
-*Kiss for the elders, sinking away,*
+*Kiss for the elders, withering to dust,*
 *The Kiss of Reprieve,*
 *Wandering Wraith,*
 *Wasting Dragon*
 
-Kat had never heard anything like it in her life. It had all the depth and emotion of the opera without the pretentious air. Kat was on a completely different high now. She could feel the music pierce through her ribcage and possess part of her that only awakened when she was on stage. There was a sorrow in the words that seemed to escape the songstress as she reveled in the combination of sounds. 
+Kat had never heard anything like it in her life. It had all the depth and emotion of the opera without the pretentious air. She could feel the music pierce her ribcage and possess part of her that only awakened when she was on stage. There was a sorrow in the words that seemed to escape the songstress as she reveled in the combination of sounds. 
 
-Unamused, Fran groaned loudly, staring at her cousin who was eyeballing this tall, dark, and weird Oryx guy. Oh, so… *that’s* what they were going to do. Kat was going to wrap herself around the drummer and Fran would have to either follow them or find her way home on her own. She wanted to throw her hands in the air and shake her cousin! Katarina wouldn’t know good sense if it kicked her in the stomach. 
+Unamused, Fran groaned loudly, staring at her cousin eyeballing this tall, dark, and weird Oryx guy. Oh, so… *that’s* what they were going to do. Kat was going to wrap herself around the drummer and Fran would have to either follow them or find her way home alone. She wanted to throw her hands in the air and shake her cousin! Katarina wouldn’t know good sense if it kicked her in the stomach. 
 
-The young di Norccia caught the look on her cousin’s face, “Don’t be a party pooper! Now, to mask or not to mask, that is the question.”
+The young di Norccia caught the look on her cousin’s face. “Don’t be a party pooper! Now, to mask or not to mask, that is the question.”
 
-Fran wrinkled her nose in distaste, but still selected the mask of a hare to fasten around her head. “I’m supposed to be having a nice dinner at home right now,” she complained as she fumbled with the clasp, completely forgetting that *her* plan had been to ride all the way to the Outer Wall. “But, noooo, can’t just have a nice night with Katarina di Norccia involved, gotta throw in some danger, illegal drug use, beastkin, probably some felonies…”
+Fran wrinkled her nose in distaste, but still selected the mask of a rabbit to fasten around her head. “I’m supposed to be having a nice dinner at home right now,” she complained as she fumbled with the clasp, completely forgetting that *her* plan had been to ride all the way to the Outer Wall. “But, noooo, can’t just have a nice night with Katarina di Norccia involved, gotta throw in some danger, illegal drug use, beastkin, probably some felonies…”
 
 Katarina smiled obligingly, turning her eyes back to the mask she was holding. She held it up towards a dim lantern to get a better look, turning it this way and that. The blue and green feathers suggested it was meant to be a peacock, and the beak was carved with a floral pattern. It was skillfully crafted, and felt like it was meant to be hers. But Katarina rarely traveled anonymously; her power *was* her identity, her family name, and the knowledge that raising a hand against her was essentially treason.
 
