@@ -1,4 +1,4 @@
-![!Oasis 2](https://cdn.discordapp.com/attachments/638778932380041236/1123984824563146922/Oasis_CH41.png)
+![!PG 1](https://cdn.discordapp.com/attachments/638778932380041236/1123984824563146922/Oasis_CH41.png)
 
 ## Chapter 1: The Songstress
 
